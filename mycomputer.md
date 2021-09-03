@@ -14,7 +14,7 @@ The Wifi of Macbook Air 13 inch of 2019 is 802.11 ac, and The Bluetooth is Bluet
 
 The Computers Ports are dual Thunderbolts 3 ports which is where you charge your laptop. Another is a headphone jack to plug in your wired ear or head phones. 
 
-Commnetary 
+Commentary 
 
 Yes, I do like my computer. My history with this computer is I’ve been using it for the third year and haven’t come across any major problems meaning it still generates efficiently till this day. 
 
